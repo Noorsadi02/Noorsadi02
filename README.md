@@ -1,6 +1,6 @@
 # Hi there 👋
 
-### Hi there 👋, I'm Noor Mohammad
+### I'm Noor Mohammad
 
 ## Professional Graphic Designer
 I am a professional graphic designer and photoshop expert. I'm working with companies and studios around town building my portfolio and skills. My mission and purpose are to bring the things I love into a beautiful form and improve the customer's lifestyle and company's value. I want to use my efforts 24x7 hours to promote your business. If you need a skilled and communicative designer, feel free to contact me anytime.
